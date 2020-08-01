@@ -26,7 +26,8 @@ After going through all this I saw my spouse with the same item at the billing c
 In my mind I felt like he was judging me for my language skills.
 The store manager saw me with my spouse and asked him if we got all the items we needed.
 My spouse replied yes.
-I felt belittled about this entire experience on my very first day in the USA.{: style="text-align: justify;"}
+I felt belittled about this entire experience on my very first day in the USA.
+{: style="text-align: justify;"}
 
 The very next day I got a call from my spouse and he gave me shocking news.
 His colleagues arranged a dinner party at the OLIVE GARDEN.
@@ -46,10 +47,12 @@ The food was delicious, and we had done enough eating.
 Then a thought came by, that my spouse’s colleagues might start asking me questions again.
 So I whispered to him asking if we could leave early. We thanked everyone and left the party.
 I felt bad for deciding to leave the party early just because I couldn’t handle that situation.
-This how my initial days in the USA went by.{: style="text-align: justify;"}
+This how my initial days in the USA went by.
+{: style="text-align: justify;"}
 
 I started my education at a private english medium school at the age of 4 years.
 I continued up to my bachelor's degree in India.
 As I am a native speaker of telugu, I used to communicate more in telugu than english.
 This is when I realized why I was unable to speak or understand in the USA.
-Then I started improving my language skills because I was not able to have a fun time or enjoy my experience in the USA.{: style="text-align: justify;"}
+Then I started improving my language skills because I was not able to have a fun time or enjoy my experience in the USA.
+{: style="text-align: justify;"}
