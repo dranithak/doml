@@ -57,7 +57,7 @@ plugins:
   - jekyll-include-cache
 
 author:
-  name   : "First Lastname"
+  name   : "Dr.Anitha Karri"
   avatar : "/assets/images/bio-photo.jpg"
   bio    : "I am an Indian experiencing the USA!"
   links:
