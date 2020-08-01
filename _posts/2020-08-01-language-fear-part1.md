@@ -1,6 +1,5 @@
 ---
 title: "How I Overcame The Fear Of Speaking A Foreign Language: Chapter 1: Birthplace To Brisk place"
-excerpt_separator: "<!--more-->"
 categories:
   - Blog
 ---
